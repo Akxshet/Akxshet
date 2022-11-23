@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+My name is Akxshet. I am an aspiring risk analyst and an avid gamer. Nice to meet you!
 <!--
 **Akxshet/Akxshet** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
